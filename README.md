@@ -1,2 +1,2 @@
 # Mor
-script
+I hate you
